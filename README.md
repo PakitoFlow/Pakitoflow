@@ -1,5 +1,5 @@
 ### Hi there 👋
-<img src="https://media.tenor.com/6GPsa5RQk_EAAAAj/antler-missy-antler.gif" width=100
+<img src="https://media.tenor.com/6GPsa5RQk_EAAAAj/antler-missy-antler.gif" width=150
      >
 
 <!--
